@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JueFeiH
 - 👀 I’m interested in living
-- 🌱 I’m currently learning world
+- 🌱 I’m currently understand world
 - 💞️ I’m looking to improve myself
 - 📫 A human being
 
